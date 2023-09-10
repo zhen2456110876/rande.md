@@ -1,1 +1,1 @@
-https://moe-counter.glitch.me/get/@zhen2456110876
+![count](https://count.getloli.com/get/@zhen2456110876)  
